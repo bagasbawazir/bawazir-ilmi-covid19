@@ -1,4 +1,4 @@
 Nama : 	- Bawazir Fadhil Mohammad
-		- Ilmi
+		- Ilmiyatus Sa'diah
 
 Covid - 19
